@@ -3,4 +3,4 @@
 - 👀 Prototype/Design : https://www.behance.net/jaegwon016953
 - 📫 CONTACT : jaegwon01@gmail.com
 <br>
-- Notice : I will upload <MAKE.A.LINE> soon. 
+- Notice : I will upload "MAKE.A.LINE" soon. 
